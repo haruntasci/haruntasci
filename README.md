@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+* 🌍  I live in Ankara/Turkey
+* ✉️  You can reach me via this e-mail address [haruntasci07@gmail.com](mailto:haruntasci07@gmail.com)
+
+
 
 ### Socials
 
